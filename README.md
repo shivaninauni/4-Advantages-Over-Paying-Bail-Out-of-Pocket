@@ -8,7 +8,7 @@ Because they are familiar with who to contact and who not to, they can help you 
 
 **2) Offer payment plans**
 
-Before you can be released from jail, your bond must be paid in full. You can't just pay 50% and get the rest the next day. The majority of people don't have this amount of money lying around so they call the san jose bonds.
+Before you can be released from jail, your bond must be paid in full. You can't just pay 50% and get the rest the next day. The majority of people don't have this amount of money lying around so they call the <a href="https://joseespinozabailbonds.com/locations/san-jose/">san jose bonds</a>.
 
 The bondsman offers flexible payment options so that you can repay your bond over time. The bond is discussed with the company, and you discuss how to pay it back. They will work with you to find a way to pay the bail bond, without putting too much strain on your finances.
 
